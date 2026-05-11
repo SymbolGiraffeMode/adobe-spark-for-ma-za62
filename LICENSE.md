@@ -1,4 +1,4 @@
-
+professional Adobe Spark for macOS Integration | auto-enhance + raw-file-support is the best Adobe Spark for macOS integration, featuring auto-enhance and raw-file-support.
 
 
 
